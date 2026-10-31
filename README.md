@@ -1,3 +1,3 @@
-> me and [THIS CHUD](https://github.com/ownlyonce) !!!!!!!!!!!
-> ![nenekasa](https://files.catbox.moe/lai7po.gif)
+ me and [THIS CHUD](https://github.com/ownlyonce) !!!!!!!!!!!
+ ![nenekasa](https://files.catbox.moe/lai7po.gif)
 
