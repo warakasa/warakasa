@@ -5,8 +5,5 @@
     <img width="498" src="https://files.catbox.moe/1o913c.gif" alt="Material Bread logo">
 </p>
 <p align="center">
-  i love my chud big brother a bunch #ok IT WONTLET ME LINK HIS GITHUB
-</p>
-<p align="center">
-check out github user @ownlyonce i guess. he's a loser
+  i love my [CHUD BROTHER](https://github.com/ownlyonce) !!!!!!!!!!!!!!
 </p>
