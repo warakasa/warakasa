@@ -7,3 +7,6 @@
 <p align="center">
   i love my chud big brother a bunch #ok IT WONTLET ME LINK HIS GITHUB
 </p>
+<p align="center">
+check out github user @ownlyonce i guess. he's a loser
+</p>
